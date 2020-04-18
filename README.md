@@ -1,0 +1,1 @@
+# syukurubowa.github.io
